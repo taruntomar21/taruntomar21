@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Tarun Kumar
+# Hi 👋, I'm Tarun Kumar
 **A passionate Data Analyst || Business Analyst**
 
 Email Me 👉 ✉️ **taruntomar9084@gmail.com** For Collaboration/Project or Anything Else. 😊😊
