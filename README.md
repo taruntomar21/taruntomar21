@@ -2,7 +2,6 @@
 **A passionate Data Analyst || Business Analyst**
 
 Email Me 👉 ✉️ **taruntomar9084@gmail.com** For Collaboration/Project or Anything Else. 😊😊
--
 Check My PortFolio 👉 **PortFolio**(https://sites.google.com/view/taruntomar/home)
 
 - 🔭 **I’m currently working on:** Comprehensive_EDA_and_Inferential_Analysis_on_Cancer_Data
